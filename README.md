@@ -1,5 +1,5 @@
 # Derin Kalay
-Contact (Email): dkalay.ru [at] gmail [dot] com
+Contact Email: dkalay.ru [at] gmail [dot] com
 
 Based in Princeton, NJ
 
