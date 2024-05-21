@@ -1,2 +1,2 @@
-# test
-installing more ram since...
+# Derin Kalay
+I like programming, physics, and chemistry
